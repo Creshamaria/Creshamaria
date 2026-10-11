@@ -7,6 +7,5 @@
 - 🤔 I’m looking for help with learning to perfect Building practical digital tools (within construction) with a difference
 - 💬 Ask me any questions ...
 - 📫 reach me: 
-- 😄 Pronouns: ...
 - ⚡ Fun fact: ...Now -
 -->
